@@ -1,4 +1,4 @@
-#【magi】【基督山伯爵】综同人——Sinbad le Marin
+# 【magi】【基督山伯爵】综同人——Sinbad le Marin
 
 **仅大纲**
 
